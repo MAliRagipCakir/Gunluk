@@ -1,0 +1,2 @@
+# Gunluk
+Buraya Reklam verebilirsiniz
